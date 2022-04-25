@@ -1,0 +1,2 @@
+Panqueca de carne moída - TudoGostosohttps://www.tudogostoso.com.br › Massas
+Massa deliciosa e um recheio suculento: a receita de panqueca de carne é maravilhosa! Quer aprender como fazer panqueca? Confira no TudoGostoso.
